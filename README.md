@@ -1,1 +1,1 @@
-# ainok-code.github.i
+# ainok-code.github.io
